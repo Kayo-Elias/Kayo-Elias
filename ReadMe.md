@@ -1,4 +1,4 @@
-# 💫 Sobre mim:
+# 🔍 Sobre mim:
 🎓 Estudante de Ciber Segurança / Analise e desenvolvimento de sistemas - UNIPÊ.<br>🔒 Estou a procura de estagio / foco em Ciber segurança.<br>📚 Aprendendo Ciber Segurança <br><br>
 
 
